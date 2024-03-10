@@ -2,7 +2,8 @@
 
 
 https://user-images.githubusercontent.com/89211232/140159838-8028f919-d15f-4b3d-b28e-e30b2c9db441.mp4
-![img2](https://user-images.githubusercontent.com/89211232/140164222-150adcc9-d866-4eb4-bc18-99144a1de757.jpg)
+![IMG-20240306-WA0011](https://github.com/bajrangpatil/neha.com/assets/89211232/87a3a12f-2590-4aee-98c7-bf0f6d3363c1)
+
 ![IMG-20240306-WA0020-removebg](https://github.com/bajrangpatil/neha.com/assets/89211232/6384dd45-2b88-4f44-b699-a4be00f5481f)
 
 
